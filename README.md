@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Rachel-OLS
+- 👀 I’m interested in food
+- 🌱 I’m currently learning to write coding
